@@ -1,0 +1,5 @@
+- 👋 eai, me chamo @absolutV3K70R
+- 👀 gosto bastante de desenhar e tambem de animes
+- 🌱 tentando aprender a progamar..
+- 😄 Pronouns: ele/dele
+- ⚡ Fun fact: tenho medo de borboletas
